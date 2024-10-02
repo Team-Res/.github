@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-we maeke vidgeo jame
+we are team res, we're a bunch of teenage nerds wrting software
